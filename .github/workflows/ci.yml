@@ -1,0 +1,13 @@
+name: CI
+on:
+  - push
+  - pull_request_target
+  - workflow_dispatch
+jobs:
+  proselint:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v2
+      - run: sudo add-apt-repository universe
+      - run: sudo apt install python3-proselint
+      - run: proselint README.md
