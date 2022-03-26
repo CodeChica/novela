@@ -12,3 +12,4 @@ They looked around the entire store for an hour looking for the cart.
 Then they got kidnapped at the store.
 The shopping cart had very important things including; a pink tank-top, some microwavable food, and magnets (all merchandise).
 One of them started to panic and accidently turned into a cupcake in the process.
+Neither of them knew where to look, so they both turned to the one thing that they believed that out help them find their loved one. 
