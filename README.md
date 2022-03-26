@@ -8,3 +8,6 @@ Anyways, back to the story…
 They were both going shopping one day then one of them got lost.
 They also forgot where they parked their shopping cart with all of their merchandise in it.
 They looked around the entire store for an hour looking for the cart.
+Then they got kidnapped at the store.
+The shopping cart had very important things including; a pink tank-top, some microwavable food, and magnets (all merchandise).
+One of them started to panic and accidently turned into a cupcake in the process.
