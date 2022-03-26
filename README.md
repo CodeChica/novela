@@ -1,7 +1,7 @@
 # la novela
 
 A long time ago in a galaxy far, far away…
-There were two beautiful women that loved each other very much.
+There were two beautiful women that loved each other.
 They lived in a thick, enchanting forest where the plants had grown tall and the rivers gleamed with the soft light reflecting into the pools.
 Also, one of them had a very, very BIG secret; she could turn into a cupcake if she sticks out her tounge
 Anyways, back to the story…
