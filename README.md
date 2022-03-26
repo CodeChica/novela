@@ -7,4 +7,5 @@ Also, one of them had a very, very BIG secret; she could turn into a cupcake if 
 Anyways, back to the story…
 They were both going shopping one day then one of them got lost.
 They also forgot where they parked their shopping cart with all of their merchandise in it.
+The shopping cart had very important things including; a pink tank-top, some microwavable food, and magnets (all merchandise).
 One of them started to panic and accidently turned into a cupcake in the process.
