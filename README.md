@@ -7,3 +7,4 @@ Also, one of them had a very, very BIG secret; she could turn into a cupcake if 
 Anyways, back to the story…
 They were both going shopping one day then one of them got lost.
 They also forgot where they parked their shopping cart with all of their merchandise in it.
+This was a major problem, as they had their cinnamon toast crunch cereal in their shopping cart and needed to find it before breakfast.
