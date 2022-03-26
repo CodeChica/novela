@@ -7,3 +7,4 @@ Also, one of them had a very, very BIG secret; she could turn into a cupcake if 
 Anyways, back to the story…
 They were both going shopping one day then one of them got lost.
 They also forgot where they parked their shopping cart with all of their merchandise in it.
+Neither of them knew where to look, so they both turned to the one thing that they believed that out help them find their loved one. 
