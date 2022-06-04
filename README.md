@@ -15,3 +15,4 @@ One of them started to panic and accidentally turned into a cupcake in the proce
 Neither of them knew where to look, so they both turned to the one thing that they believed that out help them find their loved one.
 The internet. The internet, of course, was only acesibale via carrier pigeon.
 which took months to come and go but, it was the only way to find their loved one.
+So, on their way they went in search of a pigeon to bring their loved one back.
