@@ -13,3 +13,4 @@ Then they got kidnapped at the store.
 The shopping cart had important things including; a pink tank-top, some microwavable food, and magnets (all merchandise).
 One of them started to panic and accidentally turned into a cupcake in the process.
 Neither of them knew where to look, so they both turned to the one thing that they believed that out help them find their loved one.
+The internet. The internet, of course, was only accessible via carrier pigeon.
