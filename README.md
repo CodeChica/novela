@@ -5,7 +5,7 @@ There were two beautiful women that loved each other.
 They lived in a thick, enchanting forest where the plants had grown tall and the rivers gleamed with the soft light reflecting into the pools.
 Also, one of them had a BIG secret; she could turn into a cupcake if she sticks out her tounge
 Anyways, back to the story…
-They were both going shopping one day then one of them got lost.
+They were both going shopping at their local Walmart one day then one of them got lost.
 They also forgot where they parked their shopping cart with all of their merchandise in it.
 This was a major problem, as they had their cinnamon toast crunch cereal in their shopping cart and needed to find it before breakfast.
 They looked around the entire store for an hour looking for the cart.
