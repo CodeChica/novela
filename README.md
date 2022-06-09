@@ -13,3 +13,6 @@ They looked around the entire store for an hour for the cart.
 Then they got kidnapped at the store.
 One of them started to panic and accidentally turned into a cupcake in the process.
 Neither of them knew where to look, so they both turned to the one thing that they believed would help them find their loved one.
+The internet. The internet, of course, was only accessible via carrier pigeon.
+which took months to come and go but, it was the only way to find their loved one.
+So, on their way they went in search of a pigeon to bring their loved one back.
